@@ -2,8 +2,8 @@
 *Kendrick Lamar once said:*
 
 ## HUMBLE.
-1. _Sit down_
-2. __Be humble__
+1. _MARTY HAD A DREAM_
+2. __KENDRICK HAS A DREAM__
 * *Sit down*
 * Be humble
 ### DNA.
